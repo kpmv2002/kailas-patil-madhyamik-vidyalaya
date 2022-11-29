@@ -1,1 +1,0 @@
-# kailas-patil-madhyamik-vidyalaya
